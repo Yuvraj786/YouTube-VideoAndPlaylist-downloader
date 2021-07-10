@@ -8,5 +8,5 @@ How to download your Video or Playlist
 Download the Requirement.txt for quicksetup
 
 Msg me 
-Twitter - @ImRajIndia
+Twitter - @ImRajIndia ||
 Instagram - @yuvrajsingh_is_king 
